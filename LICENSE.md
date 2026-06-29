@@ -1,4 +1,4 @@
-# 
+# Gratuito LocalAI extensões. Com geração de código e interface amigável — otimizado para máximo desempenho e eficiência.
 
 
 
